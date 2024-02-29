@@ -10,4 +10,4 @@
 - ⚡ Some facts : 
   - 👨‍👦 I'm a proud dad of a wonderful boy
   - 🐱‍💻 I'm helped everyday by two ninja cats
-  - 🎮 Maybe you played with/against me on some online games (⚽🚗, 🗺⚔, ...)
+  - 🎮 Maybe you played with/against me on some online games (⚽🚗, 🗺⚔, ⛵🏴‍☠️ ...)
